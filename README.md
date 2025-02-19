@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @wtjwtm
+- 👀 I’m interested in computer and math
